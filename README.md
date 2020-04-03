@@ -1,2 +1,2 @@
-# edgar.espinozau-gmail.com
+# Edesul91
 I´m Edgar Espinoza, a person who loves Digital Marketing and knows that it´s a world that is in constant growth and evolution; that’s why I believe in the philosophy of “never stop learning”, Innovating the world with new strategies, content, worlds, products and more. I think in Semantic advertising, different ways to meet the needs of the consumers and show them what they want to see, that´s the cause of my career in Performance or SEM strategies. Day by Day I want to learn more and grow like a person and professional. 
